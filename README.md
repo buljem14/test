@@ -6,4 +6,4 @@ Mit Änderungen und Veränderungen
 
 Siehe auch [Github](http://github.com)
 
-HEIL SATAN
+Knabitsch Probeard
